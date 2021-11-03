@@ -1,6 +1,6 @@
-## Tugas dan Pembelajaran Produktif saat masih bersekolah di smk jurusan rekayasa perangkat lunak (RPL)
+## Kumpulan Tugas Pelajaran Produktif saat masih bersekolah di smk jurusan rekayasa perangkat lunak (RPL).
 
-Kumpulan Tugas dan Pembelajaran Produktif saat masih bersekolah di smk jurusan rekayasa perangkat lunak (RPL)
+Kumpulan Tugas Pelajaran Produktif saat masih bersekolah di smk jurusan rekayasa perangkat lunak (RPL).
 
 <b>Notes : </b>
 
